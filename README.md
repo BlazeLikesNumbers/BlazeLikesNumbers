@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BlazeLikesNumbers
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on minecraft stuff
+- 📫 How to reach me no where
